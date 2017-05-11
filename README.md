@@ -6,3 +6,5 @@ the road to success
 build up a bright future with your own hands 
 
 right
+
+the prime condition of success
