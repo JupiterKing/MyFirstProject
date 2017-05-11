@@ -8,3 +8,4 @@ build up a bright future with your own hands
 right
 
 the prime condition of success
+contrabute your energe to your career
